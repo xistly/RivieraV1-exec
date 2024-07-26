@@ -1,1 +1,1 @@
-run the rivieraV2 (not the V2) and execute on game
+join the discord server: https://discord.gg/7QSTbEkrb5
